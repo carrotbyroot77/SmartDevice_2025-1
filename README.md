@@ -1,0 +1,1 @@
+# SmartDevice_2025-1
